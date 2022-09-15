@@ -1,9 +1,9 @@
 - 👋 Olá eu sou @DabiCheiroso
-- 👀 Eu tenho interesse no Dabi
+- 👀 Eu tenho interesse em dar bom dia
 - 📧 ana.soczek@escola.pr.gov.br
 - 💍 Casada com Lyandra
-- 💙 LYANDRA LINDAAAAAAAAAA
-- 🐈 Dabi melhor personagem
+- 💙 LYANDRA LINDAAAAAA
+- 🐈 bom dia e cia
 - 😻 Brenda melhor aluna da sala 10/10
 <!---
 DabiCheiroso/DabiCheiroso is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
