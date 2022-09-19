@@ -1,8 +1,8 @@
 - 👋 Olá eu sou @DabiCheiroso
-- 👀 Eu tenho interesse em dar bom dia
+- 👀 Eu tenho interesse em anoes
 - 📧 ana.soczek@escola.pr.gov.br
 - 💍 Casada com Lyandra
-- 💙 LYANDRA LINDAAAAAA
+- 💙 LYANDRA LINDA
 - 🐈 bom dia e cia
 - 😻 Brenda K melhor aluna da sala 10/10
 <!---
